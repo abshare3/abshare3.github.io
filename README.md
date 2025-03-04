@@ -1,4 +1,4 @@
-### 🚀最后更新时间: 2025-03-04 22:05:29
+### 🚀最后更新时间: 2025-03-04 23:22:20
 
 ![Banner](https://tuijianvpn.com/wp-content/uploads/2024/09/蓝海-0-png.webp)
 
@@ -26,19 +26,19 @@
 ### 🚀免费Clash订阅链接
 
 ```
-https://cgkefQ.absslk.xyz/99eaa82edead34233cc69c4666420f6d
+https://UPJKbi.absslk.xyz/014037e1447948b5e87781020b001ec4
 ```
 
 ### 🚀免费v2rayN订阅链接
 
 ```
-https://cgkefQ.absslk.xyz/99eaa82edead34233cc69c4666420f6d
+https://UPJKbi.absslk.xyz/014037e1447948b5e87781020b001ec4
 ```
 
 ### 🚀免费iOS小火箭订阅链接
 
 ```
-https://cgkefQ.absslk.xyz/99eaa82edead34233cc69c4666420f6d
+https://UPJKbi.absslk.xyz/014037e1447948b5e87781020b001ec4
 ```
 
 在深入探讨科学上网之前，我们必须了解它的背景和定义。科学上网，通常被称为“翻墙”，是指通过技术手段绕过中国大陆的互联网限制，这些限制被统称为“防火长城”（Great Firewall，简称GFW）。GFW是一套复杂的网络审查与监控机制，旨在屏蔽和过滤某些海外网站，如Google、YouTube、Facebook、Wikipedia等，使得这些全球主流平台在中国大陆无法直接访问，用户尝试访问时通常会看到“无法显示页面”的提示，也就是我们常说的网站被“墙”。
