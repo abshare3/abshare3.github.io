@@ -1,4 +1,4 @@
-### 🚀最后更新时间: 2026-11-18 22:44:53
+### 🚀最后更新时间: 2026-11-19 20:39:21
 
 # Allblue 免费 Clash 订阅（Clash Verge Rev / FlClash / Clash Meta）
 
@@ -17,7 +17,7 @@
 ### 🚀免费Clash订阅链接（Clash Verge Rev / FlClash / Clash Meta for Android 通用）
 
 ```
-https://MoBBBz.absslk.xyz/15248b78faef6bccdb27f199360b7382
+https://kGl0yk.absslk.xyz/80293ca83e4204f6f1b3620337435d35
 ```
 
 ## 选哪个 Clash 客户端
